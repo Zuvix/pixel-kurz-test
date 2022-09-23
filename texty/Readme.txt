@@ -1,1 +1,0 @@
-Totot je projekt zamerany na vzdelavanie.
